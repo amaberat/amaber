@@ -1,0 +1,2 @@
+# amaber
+Öylesine 
